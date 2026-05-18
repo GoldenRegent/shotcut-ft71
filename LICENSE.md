@@ -1,4 +1,4 @@
-# 
+# Profissional Adobe Premiere Pro para PC executor é o melhor Adobe Premiere Pro para PC executor com efeitos de transição e câmera virtual. Seguro, confiável e otimizado para
 
 
 
